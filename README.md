@@ -1,16 +1,13 @@
-## Hi there 👋
+&nbsp;
+<div align="center">
 
-<!--
-**moidix/moidix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=314mkicxlkkdu2xbfq5sn4qlspni&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&bar_color=d09951)
 
-Here are some ideas to get you started:
+![](https://file.garden/Zr5NWGsyfhIXOD_A/343DSDD.png)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+he / shy enby lesbian
+
+i love my friends & oomfies !
+  
+ [rentry](https://rentry.co/wrecked) [retrospring](https://retrospring.net/@chiisakute) [neospring](https://neospring.org/@ochaco) [atabook](https://tojis.atabook.org) 
+<div>
