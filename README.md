@@ -5,9 +5,9 @@
 
 ![](https://file.garden/Zr5NWGsyfhIXOD_A/343DSDD.png)
 
-he / shy enby lesbian
+shi / hyr demigxrl lesbian
 
 i love my friends & oomfies !
   
- [rentry](https://rentry.co/wrecked) [retrospring](https://retrospring.net/@chiisakute) [neospring](https://neospring.org/@ochaco) [atabook](https://tojis.atabook.org) 
+ [rentry](https://rentry.co/wrecked) [retrospring](https://retrospring.net/@chiisakute) [neospring](https://neospring.org/@moidix) [atabook](https://tojis.atabook.org) 
 <div>
