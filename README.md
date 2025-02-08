@@ -3,9 +3,13 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=★&color=dc143c&abbreviated=true)
 
-![](https://file.garden/Z0hvJAtLHjiPEoj3/image.webp)
+![](https://file.garden/Z0hvJAtLHjiPEoj3/orikittyhime.gif)
 
-shi / hyr demigxrl lesbian
+orihime , kitty , conny or angelisa
+
+shi / hyr / thou +[more](https://pronouns.cc/@clinically)
+
+demigxrl bisex
 
 i love my friends & oomfies !
 
