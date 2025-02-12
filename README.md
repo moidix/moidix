@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=★&color=bde7d6&abbreviated=true)
 
-[![e2b0b6ecb6e098d487add6582c176e58.gif](https://i.postimg.cc/R0K60Jc5/e2b0b6ecb6e098d487add6582c176e58.gif)](https://postimg.cc/3yrJSRSn)
+![hime](https://i.postimg.cc/R0K60Jc5/e2b0b6ecb6e098d487add6582c176e58.gif)
 
 orihime ㅤkitty ㅤconny ㅤor ㅤangelisa
 
