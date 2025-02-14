@@ -3,9 +3,9 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=★&color=bde7d6&abbreviated=true)
 
-![hime](https://i.postimg.cc/R0K60Jc5/e2b0b6ecb6e098d487add6582c176e58.gif)
+![](https://64.media.tumblr.com/18f0df39b64ead0e2d9cb7ac8922ddcb/tumblr_n3rwo0IM2J1sc9og8o1_500.gif)
 
-orihime ㅤkitty ㅤconny ㅤor ㅤangelisa
+light ㅤconny ㅤor ㅤangelisa
 
 shi ㅤ/ ㅤhyr ㅤ/ ㅤthou ㅤㅤ + [more](https://pronouns.cc/@clinically)
 
