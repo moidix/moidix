@@ -5,9 +5,9 @@
 
 ![](https://64.media.tumblr.com/18f0df39b64ead0e2d9cb7ac8922ddcb/tumblr_n3rwo0IM2J1sc9og8o1_500.gif)
 
-light ㅤconny ㅤor ㅤangelisa
+nicole ㅤlight ㅤconny ㅤor ㅤangelisa
 
-shi ㅤ/ ㅤhyr ㅤ/ ㅤthou ㅤㅤ + [more](https://pronouns.cc/@clinically)
+shi ㅤ/ ㅤhim ㅤㅤ + [more](https://pronouns.cc/@clinically)
 
 demigxrlㅤ bisex
 
