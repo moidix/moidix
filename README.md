@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=アド&color=FF0000&abbreviated=true)
 
-[![](https://i.postimg.cc/YCdgQbrH/download.gif)](https://postimg.cc/gx6nWyLS)
+[![download.gif](https://i.postimg.cc/YCdgQbrH/download.gif)](https://postimg.cc/gx6nWyLS)
 
 nicole ㅤlight ㅤconny ㅤor ㅤangelisa
 
