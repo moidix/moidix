@@ -1,9 +1,9 @@
 &nbsp;
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=moidix&label=アド&color=bde7d6&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=moidix&label=アド&color=FF0000&abbreviated=true)
 
-![](https://postimg.cc/gx6nWyLS)
+[![](https://i.postimg.cc/YCdgQbrH/download.gif)](https://postimg.cc/gx6nWyLS)
 
 nicole ㅤlight ㅤconny ㅤor ㅤangelisa
 
