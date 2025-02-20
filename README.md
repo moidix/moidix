@@ -1,11 +1,11 @@
 &nbsp;
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=moidix&label=アド&color=FF0000&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=moidix&label=♡&color=e3a4f8&abbreviated=true)
 
-[![download.gif](https://i.postimg.cc/YCdgQbrH/download.gif)](https://postimg.cc/gx6nWyLS)
+![](https://upload-os-bbs.hoyolab.com/upload/2023/02/07/10642705/2bd3559bf4797872bf149a98ce3a36ae_2008224772383725720.gif)
 
-nicole ㅤlight ㅤconny ㅤor ㅤangelisa
+koko ㅤlight ㅤconny ㅤor ㅤangelisa
 
 shi ㅤ/ ㅤhim ㅤㅤ + [more](https://pronouns.cc/@clinically)
 
