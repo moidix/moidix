@@ -5,7 +5,7 @@
 
 ![](https://upload-os-bbs.hoyolab.com/upload/2023/02/07/10642705/2bd3559bf4797872bf149a98ce3a36ae_2008224772383725720.gif)
 
-koko ㅤkira ㅤconny ㅤor ㅤangelisa
+peko ㅤkira ㅤconny ㅤor ㅤangelisa
 
 shi ㅤ/ ㅤhim ㅤㅤ + [more](https://pronouns.cc/@clinically)
 
