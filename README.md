@@ -7,7 +7,7 @@
 
 JULiETTE ㅤLENI ㅤOU ㅤCONNY
 
-SHE ㅤ/ ㅤiT ㅤ/ ㅤHYR ㅤㅤ [+](https://pronouns.cc/@clinically)
+SHE ㅤ/ ㅤiT ㅤ/ ㅤHYR ㅤㅤ [+](https://pronouns.cc/@visual)
 
 DEMiG?RLㅤ LESBO
 
