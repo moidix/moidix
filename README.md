@@ -15,5 +15,5 @@ iㅤ love ㅤmy ㅤfriends ㅤ& ㅤoomfies ㅤ!
 
 [RENTRY](https://rentry.co/wrecked) ㅤㅤㅤㅤ[FRAG](https://ask.absturztau.be/@death) ㅤㅤㅤㅤ[NEO](https://neospring.org/@malicemizer)ㅤㅤ ㅤㅤ[ATA](https://tojis.atabook.org)
  
-![](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=314mkicxlkkdu2xbfq5sn4qlspni&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&bar_color=d09951)
+![](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=314mkicxlkkdu2xbfq5sn4qlspni&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=1448c2&bar_color_cover=false)
 <div>
