@@ -7,7 +7,7 @@
 
 ViOLETTA ㅤOU ㅤViViCAㅤ+
 
-HE ㅤ/ ㅤHiM ㅤGIRL ㅤㅤ [+](https://pronouns.cc/@visual)
+SHE ㅤ/ CAT ㅤGIRL ㅤㅤ [+](https://pronouns.cc/@visual)
 
 DEMiG?RLㅤ BiSEX
 
