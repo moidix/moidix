@@ -5,12 +5,12 @@
 
 ![](https://upload-os-bbs.hoyolab.com/upload/2023/02/07/10642705/2bd3559bf4797872bf149a98ce3a36ae_2008224772383725720.gif)
 
-moe orrrr conny :3
-she/cat kitty moegirl ^_^ [+](https://pronouns.cc/@visual)
+clemmy orrrr conny :3
+she/cat kitty girl ^_^ [+](https://pronouns.cc/@visual)
 
 mayybe a demigirl and deffinitely bi
 
-i laba my friends & oomfies with my whole little moe heart <33
+i laba my friends & oomfies with my whole little usagi-stuffed heart <33
 
 [rentry](https://rentry.co/wrecked) [neospring](https://neospring.org/@gurohime) [atabook](https://wxs.atabook.org) [strawpage](https://mdma.straw.page)
  
