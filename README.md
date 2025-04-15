@@ -11,6 +11,8 @@ She/cat kitty girl [+](https://pronouns.cc/@visual)
 
 Perhaps a demigirl but definitely bi
 
+Yume of Michael Kaiser, Mey-Rin, Ichigo Kurosaki & Claire Redfield
+
 I love my friends and oomfs!
 
 [Rentry](https://rentry.co/wrecked) [Neospring](https://neospring.org/@gurohime) [Atabook](https://wxs.atabook.org) [Strawpage](https://mdma.straw.page)
