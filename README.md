@@ -5,13 +5,13 @@
 
 ![](https://upload-os-bbs.hoyolab.com/upload/2023/02/07/10642705/2bd3559bf4797872bf149a98ce3a36ae_2008224772383725720.gif)
 
-Clementine or Amia
+Clementine or Noa
 
 She/cat kitty girl [+](https://pronouns.cc/@visual)
 
 Perhaps a demigirl but definitely bi
 
-Yume of Michael Kaiser, Mey-Rin, Ichigo Kurosaki & Claire Redfield
+Yume of Michael Kaiser, Itoshi Rin, Mey-Rin, Ichigo Kurosaki & Claire Redfield
 
 I love my friends and oomfs!
 
