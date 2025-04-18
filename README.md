@@ -3,9 +3,9 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=༄.°&color=bc84ac&abbreviated=true)
 
-![](https://upload-os-bbs.hoyolab.com/upload/2023/02/07/10642705/2bd3559bf4797872bf149a98ce3a36ae_2008224772383725720.gif)
+[![noah-mushyymilkk.png](https://i.postimg.cc/jjZTZ44Y/noah-mushyymilkk.png)](https://postimg.cc/sBQb2SLT)
 
-Clementine or Noa
+$${\color{#c6273b}Clementine}$$ or $${\color{#fbb5e9}Noa}$$
 
 She/cat kitty girl [+](https://pronouns.cc/@visual)
 
