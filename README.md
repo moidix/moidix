@@ -1,7 +1,7 @@
 &nbsp;
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=moidix&label=༄.°&color=bc84ac&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=ca3e62&abbreviated=true)
 
 [![noah-mushyymilkk.png](https://i.postimg.cc/jjZTZ44Y/noah-mushyymilkk.png)](https://postimg.cc/sBQb2SLT)
 
