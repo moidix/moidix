@@ -7,7 +7,7 @@
 
 $${\color{#c6273b}Clementine}$$ or $${\color{#fbb5e9}Noa}$$
 
-She/cat kitty girl [+](https://pronouns.cc/@visual)
+She/cat kitty girl [+](https://pronouns.cc/@rosy)
 
 Perhaps a demigirl but definitely bi
 
