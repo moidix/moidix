@@ -3,9 +3,9 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=873c51&abbreviated=true)
 
-[![Untitled308-20250421165005.png](https://i.postimg.cc/DwVf7Wp7/Untitled308-20250421165005.png)](https://postimg.cc/7fVrVLyR)
+[![Untitled308-20250421182024.png](https://i.postimg.cc/2yWW51vh/Untitled308-20250421182024.png)](https://postimg.cc/gLYjSkg2)
 
-$${\color{#c6273b}Clementine}$$ or $${\color{#fbb5e9}Noa}$$
+$${\color{#873c51}Clementine}$$ or $${\color{#c1bab4}Noa}$$
 
 She/cat kitty girl [+](https://pronouns.cc/@rosy)
 
