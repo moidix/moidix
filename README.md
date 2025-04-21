@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=ca3e62&abbreviated=true)
 
-[![noah-mushyymilkk.png](https://i.postimg.cc/jjZTZ44Y/noah-mushyymilkk.png)](https://postimg.cc/sBQb2SLT)
+[![Untitled308-20250421165005.png](https://i.postimg.cc/DwVf7Wp7/Untitled308-20250421165005.png)](https://postimg.cc/7fVrVLyR)
 
 $${\color{#c6273b}Clementine}$$ or $${\color{#fbb5e9}Noa}$$
 
