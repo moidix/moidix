@@ -5,7 +5,7 @@
 
 [![Untitled308-20250421182024.png](https://i.postimg.cc/2yWW51vh/Untitled308-20250421182024.png)](https://postimg.cc/gLYjSkg2)
 
-$${\color{#873c51}Clementine}$$ or $${\color{#c1bab4}Noa}$$
+$${\color{#873c51}Clementine}$$ or $${\color{#c1bab4}Avril}$$
 
 She/cat kitty girl [+](https://pronouns.cc/@rosy)
 
