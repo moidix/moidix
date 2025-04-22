@@ -11,7 +11,8 @@ She/cat kitty girl [+](https://pronouns.cc/@rosy)
 
 Perhaps a demigirl but definitely bi
 
-Yume of Michael Kaiser, Itoshi Rin, Mey-Rin, Ichigo Kurosaki & Claire Redfield
+Yume of Michael Kaiser, Itoshi Rin, Mey-Rin, Ichigo Kurosaki
+Kenyu Yukimiya, Zantetsu Tsurugi & Claire Redfield
 
 I love my friends and oomfs!
 
