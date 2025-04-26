@@ -3,20 +3,17 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=873c51&abbreviated=true)
 
-[![Untitled308-20250421182024.png](https://i.postimg.cc/2yWW51vh/Untitled308-20250421182024.png)](https://postimg.cc/gLYjSkg2)
+[![upjgcy.png](https://i.postimg.cc/ydFrv3QR/upjgcy.png)](https://postimg.cc/TL39P1X2)
 
-$${\color{#873c51}Clementine}$$ or $${\color{#c1bab4}Avril}$$
+mel or avril
 
-She/cat kitty girl [+](https://pronouns.cc/@rosy)
+she her cis (cat)girl [+](https://pronouns.cc/@rosy)
 
-Perhaps a demigirl but definitely bi
+yume of michael kaiser, itoshi rin, ichigo kurosaki and kenyu yukimiya
 
-Yume of Michael Kaiser, Itoshi Rin, Mey-Rin, Ichigo Kurosaki
-Kenyu Yukimiya, Zantetsu Tsurugi & Claire Redfield
+i love my friends and oomfs eek
 
-I love my friends and oomfs!
-
-[Rentry](https://rentry.co/jules) [Neospring](https://neospring.org/@gurohime) [Atabook](https://wxs.atabook.org) [Strawpage](https://mdma.straw.page) [Guns.lol](https://guns.lol/lesbian)
+[rentry](https://rentry.co/jules) [neospring](https://neospring.org/@gurohime) [atabook](https://wxs.atabook.org) [strawpage](https://mdma.straw.page) [guns.lol](https://guns.lol/lesbian)
  
 ![](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=314mkicxlkkdu2xbfq5sn4qlspni&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=1448c2&bar_color_cover=false)
 <div>
