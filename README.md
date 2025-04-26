@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=000000&abbreviated=true)
 
-[![upjgcy.png](https://i.postimg.cc/ydFrv3QR/upjgcy.png)](https://postimg.cc/TL39P1X2)
+<img src="https://i.postimg.cc/ydFrv3QR/upjgcy.png" width="350" height="350">
 
 mel or avril
 
