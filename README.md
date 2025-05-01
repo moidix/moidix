@@ -1,11 +1,11 @@
 &nbsp;
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=000000&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=f9d9aa&abbreviated=true)
 
 <img src="https://i.postimg.cc/ydFrv3QR/upjgcy.png" width="350" height="350">
 
-${{\color{#00ff00}\Huge{\texttt{mel}}}}$ or ${{\color{#00ff00}\Huge{\texttt{avril}}}}$
+${{\color{#4ea295}\Huge{\texttt{mel}}}}$ or ${{\color{#7b9ba8}\Huge{\texttt{avril}}}}$
 
 she her cis (cat)girl [+](https://pronouns.cc/@rosy)
 
