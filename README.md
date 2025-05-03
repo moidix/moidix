@@ -5,7 +5,7 @@
 
 <img src="https://i.postimg.cc/ydFrv3QR/upjgcy.png" width="350" height="350">
 
-${{\color{#4ea295}\Huge{\texttt{mel}}}}$ or ${{\color{#7b9ba8}\Huge{\texttt{avril}}}}$
+${{\color{#4ea295}\Huge{\texttt{mel}}}}$ or ${{\color{#7b9ba8}\Huge{\texttt{ekaterina}}}}$ (katya)
 
 she her cis (cat)girl [+](https://pronouns.cc/@rosy)
 
