@@ -1,11 +1,11 @@
 &nbsp;
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=35d8f9&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=d2043f&abbreviated=true)
 
 <img src="https://i.postimg.cc/ydFrv3QR/upjgcy.png" width="350" height="350">
 
-${{\color{#feeb85}\Huge{\texttt{mel}}}}$ or ${{\color{#ff82b9}\Huge{\texttt{ekaterina}}}}$ (katya)
+${{\color{#ec7c8d}\Huge{\texttt{mel}}}}$ or ${{\color{#77c1c9}\Huge{\texttt{ekaterina}}}}$ (katya)
 
 she her cis (cat)girl [+](https://pronouns.cc/@rosy)
 
