@@ -5,11 +5,11 @@
 
 <img src="https://i.postimg.cc/ydFrv3QR/upjgcy.png" width="350" height="350">
 
-${{\color{#ec7c8d}\Huge{\texttt{mel}}}}$ or ${{\color{#77c1c9}\Huge{\texttt{betja}}}}$
+${{\color{#ec7c8d}\Huge{\texttt{mel}}}}$ or ${{\color{#77c1c9}\Huge{\texttt{yuna}}}}$
 
 she her cis (cat)girl [+](https://pronouns.cc/@rosy)
 
-yume of michael kaiser, itoshi rin, ichigo kurosaki and kenyu yukimiya
+yume of kazuma niou & itoshi rin & ichigo
 
 en/fr/ndl, i love my friends and oomfs eek
 
