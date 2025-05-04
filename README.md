@@ -5,13 +5,13 @@
 
 <img src="https://i.postimg.cc/ydFrv3QR/upjgcy.png" width="350" height="350">
 
-${{\color{#ec7c8d}\Huge{\texttt{mel}}}}$ or ${{\color{#77c1c9}\Huge{\texttt{ekaterina}}}}$ (katya)
+${{\color{#ec7c8d}\Huge{\texttt{mel}}}}$ or ${{\color{#77c1c9}\Huge{\texttt{betja}}}}$
 
 she her cis (cat)girl [+](https://pronouns.cc/@rosy)
 
 yume of michael kaiser, itoshi rin, ichigo kurosaki and kenyu yukimiya
 
-i love my friends and oomfs eek
+en/fr/ndl, i love my friends and oomfs eek
 
 [rentry](https://rentry.co/jules) [neospring](https://neospring.org/@gurohime) [atabook](https://wxs.atabook.org) [strawpage](https://mdma.straw.page) [guns.lol](https://guns.lol/lesbian)
  
