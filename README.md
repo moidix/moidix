@@ -5,9 +5,9 @@
 
 <img src="https://i.postimg.cc/ydFrv3QR/upjgcy.png" width="350" height="350">
 
-${{\color{#ec7c8d}\Huge{\texttt{mel}}}}$ or ${{\color{#77c1c9}\Huge{\texttt{yuna}}}}$
+${{\color{#ec7c8d}\Huge{\texttt{adelaide}}}}$ (ada) or ${{\color{#77c1c9}\Huge{\texttt{yuna}}}}$
 
-she her cis (cat)girl [+](https://pronouns.cc/@rosy)
+she her cis dolly (cat)girl [+](https://pronouns.cc/@rosy)
 
 yume of kazuma niou & itoshi rin & michael kaiser & ichigo
 
