@@ -7,7 +7,7 @@
 
 ${{\color{#ec7c8d}\Huge{\texttt{adelaide}}}}$ (ada) or ${{\color{#77c1c9}\Huge{\texttt{yuna}}}}$
 
-she her cis dolly (cat)girl [+](https://pronouns.cc/@rosy)
+she her cis dolly (cat)girl [+](https://pronouns.cc/@adelaide)
 
 yume of kazuma niou & itoshi rin & michael kaiser & ichigo
 
