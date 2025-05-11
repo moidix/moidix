@@ -1,13 +1,13 @@
 &nbsp;
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=7e8aea&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=01105c&abbreviated=true)
 
 <img src="https://i.postimg.cc/902xSXkv/13.gif" width="450" height="350">
 
 ♰
 
-${{\color{#cfc5d5}\Huge{\texttt{ADA}}}}$ ${{\color{#7e8aea}\Huge{\texttt{ː}}}}$ ${{\color{#9db7f0}\Huge{\texttt{yuna}}}}$
+${{\color{#76759b}\Huge{\texttt{ADA}}}}$ ${{\color{#bfbec4}\Huge{\texttt{ː}}}}$ ${{\color{#2f78ac}\Huge{\texttt{yuna}}}}$
 
 she her cis dolly (cat)girl [+](https://pronouns.cc/@adelaide)
 
