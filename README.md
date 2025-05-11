@@ -7,7 +7,7 @@
 
 ♰
 
-${{\color{#cfc5d5}\Huge{\texttt{ADA}}}}$ or ${{\color{#9db7f0}\Huge{\texttt{yuna}}}}$
+${{\color{#cfc5d5}\Huge{\texttt{ADA}}}}$ ${{\color{#7e8aea}\Huge{\texttt{ː}}}}$ ${{\color{#9db7f0}\Huge{\texttt{yuna}}}}$
 
 she her cis dolly (cat)girl [+](https://pronouns.cc/@adelaide)
 
