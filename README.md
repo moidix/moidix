@@ -11,7 +11,7 @@ ${{\color{#76759b}\Huge{\texttt{ADA}}}}$ ${{\color{#bfbec4}\Huge{\texttt{ː}}}}$
 
 she her cis dolly (cat)girl [+](https://pronouns.cc/@adelaide)
 
-yume of kazuma niou & itoshi rin & michael kaiser & ichigo
+NON-SHARING yume of mammon (whb) & emil mesmer (idv)
 
 en/fr/ndl, i love my friends and oomfs eek
 
