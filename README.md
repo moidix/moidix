@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=fe8aa4&abbreviated=true)
 
-<img src="https://i.pinimg.com/originals/59/b4/4e/59b44edb23c98d419d18321bdc1bf619.gif" width="490" height="280">
+<img src="https://i.postimg.cc/GpHhxNjy/tumblr-d7c3d30823bd10cba14cab954240661b-38f34643-500.gif" width="380" height="280">
 
 ♰
 
