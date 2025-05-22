@@ -1,4 +1,4 @@
-&nbsp;
+.&nbsp;
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=18263b&abbreviated=true)
@@ -7,7 +7,7 @@
 
 ♰
 
-${{\color{#2c2e37}\Huge{\texttt{AZURE}}}}$ ${{\color{#606365}\Huge{\texttt{ː}}}}$ ${{\color{#535041}\Huge{\texttt{yuna}}}}$
+${{\color{#2c2e37}\Huge{\texttt{VIVICA}}}}$ ${{\color{#606365}\Huge{\texttt{ː}}}}$ ${{\color{#535041}\Huge{\texttt{yuna}}}}$
 
 she her cis dolly (cat)girl [+](https://pronouns.cc/@adelaide)
 
