@@ -1,4 +1,4 @@
-.&nbsp;
+&nbsp;
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=18263b&abbreviated=true)
