@@ -7,9 +7,9 @@
 
 ♰
 
-${{\color{#2c2e37}\Huge{\texttt{VIVICA}}}}$ ${{\color{#606365}\Huge{\texttt{ː}}}}$ ${{\color{#535041}\Huge{\texttt{yuna}}}}$
+${{\color{#2c2e37}\Huge{\texttt{VIVICA}}}}$ ${{\color{#606365}\Huge{\texttt{ː}}}}$ ${{\color{#535041}\Huge{\texttt{jiji}}}}$
 
-she her cis dolly (cat)girl [+](https://pronouns.cc/@adelaide)
+she her cis dolly (cat)girl [+](https://pronouns.cc/@jiluka)
 
 NON-SHARING yume of mammon (whb) & emil mesmer (idv)
 
