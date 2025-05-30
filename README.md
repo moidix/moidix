@@ -7,7 +7,7 @@
 
 ♰
 
-${{\color{#2c2e37}\Huge{\texttt{VIVICA}}}}$ ${{\color{#606365}\Huge{\texttt{ː}}}}$ ${{\color{#535041}\Huge{\texttt{jiji}}}}$
+vica ː jiji
 
 she her cis dolly (cat)girl [+](https://pronouns.cc/@jiluka)
 
