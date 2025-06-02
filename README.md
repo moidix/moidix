@@ -7,7 +7,7 @@
 
 ♰
 
-vica ː jiji
+vica ː gwyn(ne)
 
 she her cis dolly (cat)girl [+](https://pronouns.cc/@jiluka)
 
