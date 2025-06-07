@@ -5,7 +5,7 @@
 
 ♰
 
-vica ː viviane
+yvonne ː vica ː viviane
 
 dolly girl [she her](https://pronouns.cc/@jiluka)
 
