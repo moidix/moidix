@@ -5,6 +5,8 @@
 
 ♰
 
+![](https://ibb.co/YBJ6LF6d)
+
 émile ː vica
 
 dolly girl [she her](https://pronouns.cc/@jiluka)
