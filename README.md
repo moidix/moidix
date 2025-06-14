@@ -5,7 +5,7 @@
 
 ♰
 
-angie / ange(lisa) ː vica ː viviane
+émile ː vica
 
 dolly girl [she her](https://pronouns.cc/@jiluka)
 
