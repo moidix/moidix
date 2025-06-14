@@ -1,16 +1,22 @@
 &nbsp;
 <div align="center">
-
+ 
 ![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=18263b&abbreviated=true)
 
+<div>
+<div align="center">
 ♰
-
+<div>
 <img src="https://files.catbox.moe/f9y0b9.gif" width="350" height="200" />
 
+<div align="center">
 émile ː vica 
-
+<div>
+<div align="center">
+ 
 dolly girl [she her](https://pronouns.cc/@jiluka)
-
+ 
+<div>
 en/fr/ndl
 
 [rentry](https://rentry.co/wrecked) [ata](https://malice.atabook.org) [rblx](https://www.roblox.com/users/5809349077/profile) [lastfm](https://last.fm/user/pawincess)
