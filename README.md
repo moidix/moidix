@@ -5,9 +5,9 @@
 
 ♰
 
-![](https://ibb.co/YBJ6LF6d)
+<img src="https://files.catbox.moe/f9y0b9.gif" width="350" height="200" />
 
-émile ː vica
+émile ː vica 
 
 dolly girl [she her](https://pronouns.cc/@jiluka)
 
