@@ -10,7 +10,7 @@
 <img src="https://files.catbox.moe/f9y0b9.gif" width="350" height="200" />
 
 <div align="center">
-émile ː vica 
+bernadette ː vica ː mortia
 <div>
 <div align="center">
  
