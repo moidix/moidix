@@ -14,7 +14,7 @@ bernadette ː vica ː mortia
 <div>
 <div align="center">
  
-dolly girl [she her](https://pronouns.cc/@jiluka)
+dolly girl [she him](https://pronouns.cc/@jiluka)
  
 <div>
 en/fr/ndl
