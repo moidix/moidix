@@ -10,7 +10,7 @@
 <img src="https://files.catbox.moe/f9y0b9.gif" width="350" height="200" />
 
 <div align="center">
-bernadette ː vica ː mortia
+bernie ː vica ː millie ː mortia
 <div>
 <div align="center">
  
