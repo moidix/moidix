@@ -10,14 +10,12 @@
 <img src="https://files.catbox.moe/f9y0b9.gif" width="350" height="200" />
 
 <div align="center">
-bernie ː vica ː millie ː mortia
-<div>
-<div align="center">
  
-dolly girl [she him](https://pronouns.cc/@jiluka)
- 
-<div>
-en/fr/ndl
+vica ː danika ː mortia  [she him](https://pronouns.cc/@jiluka)
+
+#1 ivan braginsky fan + n-sharing russia (ht) yume
+
+en/fr/md
 
 [rentry](https://rentry.co/wrecked) [ata](https://malice.atabook.org) [rblx](https://www.roblox.com/users/5809349077/profile) [lastfm](https://last.fm/user/pawincess)
  
