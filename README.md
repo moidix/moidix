@@ -11,7 +11,7 @@
 
 <div align="center">
  
-vica ː danika ː mortia  [she him](https://pronouns.cc/@jiluka)
+vica ː blythe ː bernie  [she him](https://pronouns.cc/@jiluka)
 
 #1 ivan braginsky fan + n-sharing russia (ht) yume
 
