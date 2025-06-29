@@ -15,7 +15,7 @@ vica ː blythe ː bernie  [she him](https://pronouns.cc/@jiluka)
 
 #1 ivan braginsky fan + n-sharing russia (ht) yume
 
-en/fr/md
+en/fr/esp
 
 [rentry](https://rentry.co/wrecked) [ata](https://malice.atabook.org) [rblx](https://www.roblox.com/users/5809349077/profile) [lastfm](https://last.fm/user/pawincess)
  
