@@ -11,7 +11,7 @@
 
 <div align="center">
  
-vica ː blythe ː bernie  [she him](https://pronouns.cc/@jiluka)
+viva ː ija ː bernie  [she him](https://pronouns.cc/@jiluka)
 
 #1 ivan braginsky fan + n-sharing russia (ht) yume
 
