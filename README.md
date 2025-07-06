@@ -11,9 +11,9 @@
 
 <div align="center">
  
-viva ː ija ː bernie  [she him](https://pronouns.cc/@jiluka)
+viva ː natalya ː aiden + , [she him](https://pronouns.cc/@jiluka)
 
-#1 ivan braginsky fan + n-sharing russia (ht) yume
+#1 elizabeta fan + n-sharing hungary (ht) yume
 
 en/fr/esp
 
