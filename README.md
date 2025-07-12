@@ -11,9 +11,9 @@
 
 <div align="center">
  
-viva ː natalya ː aiden + , [she him](https://pronouns.cc/@jiluka)
+viva ː lamprey ː aiden + , [she he none](https://pronouns.cc/@jiluka)
 
-#1 elizabeta fan + n-sharing hungary (ht) yume
+#1 date everything fan + n-sharing dirk deveraux yume
 
 en/fr/esp
 
